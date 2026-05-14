@@ -1,4 +1,4 @@
-#  
+#  dig deeper for brainrots automatic Script offers the most advanced dig deeper for brainrots Script, with auto-farm and anti-ban. Perfect for
 
 
 
